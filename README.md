@@ -1,0 +1,1 @@
+mincra promi
